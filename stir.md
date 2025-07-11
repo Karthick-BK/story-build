@@ -1,1 +1,1 @@
-we are studying MCA at psg college of Technology 
+We are studying MCA at PSG college of Technology 
